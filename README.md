@@ -34,7 +34,7 @@
 
 - 🌐 [LinkedIn](https://www.linkedin.com/in/cyril-natasha/)  
 - 📷 [Instagram]: cyrilnatasha.s  
-- ✉️ Email: sirilcans@email.com  
+- ✉️ Email: siril.natasha@email.com  
 
 ---
 
